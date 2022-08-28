@@ -1,1 +1,1 @@
-# friday-noght-funkin-soundfont-and-mods
+# friday-night-funkin-soundfont-and-mods
